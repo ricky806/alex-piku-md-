@@ -1,7 +1,7 @@
  [`ℹ️ ＦＯＬＬＯＷ ＦＯＲ ＵＰＤＡＴＥＳ
 `](https://github.com/OfficialAnjanv2)
 [![-----------------------------------------------------](https://raw.githubusercontent.com/andreasbm/readme/master/assets/lines/colored.png)](#table-of-contents)
-      <p align="center">[🇸 🇹 🇦 🇷 -🇲 🇩 ](https://wa.me/+919883457657)
+      <p align="center">[𝞓𝞜𝙅𝞓𝞜-𝞛𝘿-𝝯𝟮 ](https://wa.me/+919883457657)
 [![-----------------------------------------------------](https://raw.githubusercontent.com/andreasbm/readme/master/assets/lines/colored.png)](#table-of-contents)
 
 
